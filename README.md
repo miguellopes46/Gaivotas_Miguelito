@@ -3,7 +3,7 @@ Realizado por:
 
 Marta Simões, iscac17289@alumni.iscac.pt
 
-Miguel Lopes,
+Miguel Lopes
 
 Pedro Rafael Santos, pedro_rafael@hotmail.fr
 
